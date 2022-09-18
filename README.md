@@ -4,8 +4,8 @@
 <h3 align="center">A passionate frontend developer from The North Pole</h3>
 
 - 🔭 I’m currently working on...
-      [Radiant](discord.gg/pxFYHjXEMA)
 
+      [Radiant](discord.gg/pxFYHjXEMA)
       [Synapse.Technologies](discord.gg/pxFYHjXEMA)
 
 - 💬 Ask me about anything ig?

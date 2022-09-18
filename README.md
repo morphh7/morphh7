@@ -7,13 +7,13 @@
 
       [Radiant](discord.gg/pxFYHjXEMA)
       [Synapse.Technologies](discord.gg/NwUCQBuQdR)
-      [Project-X.rip](https://discord.gg/NwUCQBuQdR)
-      [Project-Y.rip](https://discord.gg/NwUCQBuQdR)
-      [Project-Z.rip](https://discord.gg/NwUCQBuQdR)
+      [Project-X.rip](discord.gg/NwUCQBuQdR)
+      [Project-Y.rip](discord.gg/NwUCQBuQdR)
+      [Project-Z.rip](discord.gg/NwUCQBuQdR)
 
 - 💬 Ask me about anything ig?
 
-- 📫 How to reach me radiants777@gmail.com
+- 📫 How to reach me bilguun30007688@gmail.com
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

@@ -6,7 +6,10 @@
 - 🔭 I’m currently working on...
 
       [Radiant](discord.gg/pxFYHjXEMA)
-      [Synapse.Technologies](discord.gg/pxFYHjXEMA)
+      [Synapse.Technologies](discord.gg/NwUCQBuQdR)
+      [Project-X.rip](https://discord.gg/NwUCQBuQdR)
+      [Project-Y.rip](https://discord.gg/NwUCQBuQdR)
+      [Project-Z.rip](https://discord.gg/NwUCQBuQdR)
 
 - 💬 Ask me about anything ig?
 

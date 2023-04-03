@@ -13,7 +13,7 @@
 
 - 💬 Ask me about anything ig?
 
-- 📫 How to reach me bilguun30007688@gmail.com
+- 📫 How to reach me dicrod: morphh#8467
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

@@ -13,7 +13,8 @@
 
 - 💬 Ask me about anything ig?
 
-- 📫 How to reach me dicrod: morphh#8467
+- 📫 How to reach me
+- Discord: morphh#8467
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
